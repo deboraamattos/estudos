@@ -1,0 +1,2 @@
+# estudos
+inicio dos estudos 
